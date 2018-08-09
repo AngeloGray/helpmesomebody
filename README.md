@@ -1,2 +1,3 @@
 # helpmesomebody
-i trying programming
+
+I AM CODER!!!!
