@@ -1,0 +1,2 @@
+# helpmesomebody
+i trying programming
